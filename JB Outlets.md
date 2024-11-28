@@ -25,7 +25,7 @@
      - 地址：Jalan Premium Outlets, Indahpura, 81000 Kulai, Johor Darul Takzim.
      - 特色：[黑五大优惠](https://www.premiumoutlets.com.my/johor-premium-outlets/events/jpo-black-friday-special-sale-291124)
        
-  3. **景点名称**KSL City Mall（预计停留时间：X小时）  
+  3. **景点名称**KSL City Mall（预计停留时间：2-3小时）  
      - 特色：吃饭、榴莲、按摩
      
 ---
